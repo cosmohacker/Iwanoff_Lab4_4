@@ -1,0 +1,1 @@
+http://www.iwanoff.inf.ua/programming_2_en/LabTraining01.html
